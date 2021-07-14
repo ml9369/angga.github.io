@@ -1,2 +1,0 @@
-# angga.github.io
-Angga
